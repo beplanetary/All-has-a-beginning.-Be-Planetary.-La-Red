@@ -12,7 +12,7 @@ If you want to start to read from original message, please, go to:
 theplanetaryclub(dot)com/be-planetary
 Be Planetary, everything has a beginning
 
-Do you think it would be a good idea to launch this project from Cape Town?
+Do you think it would be a good idea to launch this project from anywhere online?
 
 Kind regards and health.
 (trying to do ecomárketing)
